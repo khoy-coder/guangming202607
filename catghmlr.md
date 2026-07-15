@@ -50,23 +50,23 @@
 
 <h3>“潮起厦门 e鹭向新”2026年网络全媒体厦门行成功举办</h3>
 
-<p><code><a href='http://www.movie.mzdov.cn/kongbu/17547.htm'>http://www.movie.mzdov.cn/kongbu/17547.htm</a></code></p>
+<p><code>http://www.movie.mzdov.cn/kongbu/17547.htm</code></p>
 
 <h3>欧洲议会委员会投票支持欧美贸易协议</h3>
 
-<p><code><a href='http://www.play.kceoo.cn/kongbu/25928.htm'>http://www.play.kceoo.cn/kongbu/25928.htm</a></code></p>
+<p><code>http://www.play.kceoo.cn/kongbu/25928.htm</code></p>
 
 <h3>康复辅具点亮美好生活 “康博会”首次落地重庆</h3>
 
-<p><code><a href='http://www.movie.kceoo.cn/aiqing/50461.htm'>http://www.movie.kceoo.cn/aiqing/50461.htm</a></code></p>
+<p><code>http://www.movie.kceoo.cn/aiqing/50461.htm</code></p>
 
 <h3>大美边疆看我家丨跟随维妮娜一同感受新疆的美好</h3>
 
-<p><code><a href='http://www.movie.kceoo.cn/aiqing/13090.htm'>http://www.movie.kceoo.cn/aiqing/13090.htm</a></code></p>
+<p><code>http://www.movie.kceoo.cn/aiqing/13090.htm</code></p>
 
 <h3>派拉蒙寻求FCC批准，为华纳兄弟收购引入中东资金</h3>
 
-<p><code><a href='http://www.movie.mzdov.cn/kongbu/96239.htm'>http://www.movie.mzdov.cn/kongbu/96239.htm</a></code></p>
+<p><code>http://www.movie.mzdov.cn/kongbu/96239.htm</code></p>
 
 <p>内容根据现有新闻资料整理，具体信息以相关部门和权威媒体发布为准。</p>
 
@@ -74,13 +74,13 @@
 
 <h3>伊朗伊斯兰革命卫队：已实现对霍尔木兹海峡的绝对控制</h3>
 
-<p><code><a href='http://www.movie.hkepx.cn/sitemap_44573.xml'>http://www.movie.hkepx.cn/sitemap_44573.xml</a></code></p>
+<p><code>http://www.movie.hkepx.cn/sitemap_44573.xml</code></p>
 
 <h3>云雾漫卷映山红 江西多地杜鹃花盛放迎客</h3>
 
-<p><code><a href='http://www.movie.kceoo.cn/sitemap_70441.xml'>http://www.movie.kceoo.cn/sitemap_70441.xml</a></code></p>
+<p><code>http://www.movie.kceoo.cn/sitemap_70441.xml</code></p>
 
 <h3>一季度乳制品结构性回暖 低温奶增速超30.7%、常温奶跌幅收窄</h3>
 
-<p><code><a href='http://www.movie.hengshemaoyi.cn/sitemap_87213.xml'>http://www.movie.hengshemaoyi.cn/sitemap_87213.xml</a></code></p>
+<p><code>http://www.movie.hengshemaoyi.cn/sitemap_87213.xml</code></p>
 
